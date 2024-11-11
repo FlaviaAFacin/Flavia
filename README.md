@@ -8,4 +8,4 @@ Uso esse lugar como um mural dos meus projetos e ídeias
 ## Para entrar em contato comigo:
 facin.flavia@fescola.pr.gov.br
 @FlaviaAFacin
-![](![image](https://github.com/user-attachments/assets/223e228f-0f2c-4f26-9f44-e08b1973f914))
+![](https://img.freepik.com/fotos-premium/desenho-de-raposa-fofa-em-um-fundo-rosa_900101-26322.jpg)
